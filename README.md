@@ -1,3 +1,2 @@
 # castleunderground
-I don't know what I'm doing with this.
-It's going to be a story. God I hope this works out.
+So it's a WIP of a story that's still being worked out. I need to learn to draw better backgrounds T_T
